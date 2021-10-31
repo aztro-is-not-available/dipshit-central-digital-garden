@@ -1,4 +1,4 @@
-Welcome to Dipshit Central's Digital Garden. Please, don't enjoy your stay.
+Welcome to Dipshit Central's Digital Garden. We hope you don't enjoy your stay.
 
 For people, go here: [[People]]
 For projects, go here: [[Projects]]

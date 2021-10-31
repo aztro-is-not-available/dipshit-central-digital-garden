@@ -1,3 +1,6 @@
+Francis is the fan-favorite. Will laugh at anything gaming related. Has trouble with doing nothing.
+
+Linked to:
 [[Ian]]
 [[Jake]]
 [[Brayce]]

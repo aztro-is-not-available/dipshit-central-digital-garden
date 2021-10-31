@@ -1,3 +1,6 @@
+Defining characteristic: short. Likes to harass high people. Huge military/gun nut.
+
+Linked to:
 [[Michael]]
 [[Marconi]]
 [[Jake]]

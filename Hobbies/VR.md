@@ -1,3 +1,7 @@
+vir·tu·al re·al·i·ty
+/ˈˌvərCH(əw)əl rēˈalədē/
+the computer-generated simulation of a three-dimensional image or environment that can be interacted with in a seemingly real or physical way by a person using special electronic equipment, such as a helmet with a screen inside or gloves fitted with sensors.
+
 [[Leon]]
 [[Michael]]
 [[Ian]]

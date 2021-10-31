@@ -1,3 +1,8 @@
+mu·sic
+/ˈmyo͞ozik/
+vocal or instrumental sounds (or both) combined in such a way as to produce beauty of form, harmony, and expression of emotion.
+
+
 [[Jake]]
 [[Ian]]
 [[Leon]]

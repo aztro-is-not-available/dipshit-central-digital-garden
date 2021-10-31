@@ -1,4 +1,6 @@
-#european
+A ginger european (ew).
+
+Linked to:
 [[Ian]]
 
 

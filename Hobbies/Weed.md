@@ -1,3 +1,8 @@
+can·na·bis
+/ˈkanəbəs/
+
+Cannabis, also known as marijuana among other names, is a psychoactive drug from the Cannabis plant. Native to Central Asia and the Indian subcontinent, the cannabis plant has been used as a drug for both recreational and entheogenic purposes and in various traditional medicines for centuries.
+
 [[Ian]]
 [[Michael]]
 [[Leon]]

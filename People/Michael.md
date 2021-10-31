@@ -1,3 +1,6 @@
+The computer nerd of the group and the administrator of this site.
+
+Linked to:
 [[Ian]]
 [[Marconi]]
 [[Shane]]

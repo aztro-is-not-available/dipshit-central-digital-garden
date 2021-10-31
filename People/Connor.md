@@ -1,5 +1,7 @@
 Connor is a social hermit who only comes out of his house every so often, except for necessity. Connor is viciously racist.
 
+"Gangstalkers disguising themselves as girl scouts think they are so smart until they find 37 landmines i've buried in my front yard"
+
 Linked to:
 [[Michael]]
 [[Shane]]

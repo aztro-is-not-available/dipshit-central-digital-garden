@@ -1,4 +1,4 @@
-The Central Woods contains to the general area of woods containing or nearby to:
+The Central Woods pertains to the general area of woods containing or nearby to:
 [[The_FOB]], [[The_Bog]], [[FOB_2]], and [[The_Creek]].
 
 Known entities that live in or around The Central Woods are listed in [[Entities]]

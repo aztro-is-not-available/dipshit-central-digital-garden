@@ -1,5 +1,7 @@
 The computer nerd of the group and the administrator of this site.
 
+Nicknames include: Big Man Michael, Pelvis, Pelvistein
+
 Linked to:
 [[Ian]]
 [[Marconi]]

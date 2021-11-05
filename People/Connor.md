@@ -2,6 +2,8 @@ Connor is a social hermit who only comes out of his house every so often, except
 
 "Gangstalkers disguising themselves as girl scouts think they are so smart until they find 37 landmines i've buried in my front yard"
 
+Nicknames Include: Professor Carl, The Anti-Clooch
+
 Linked to:
 [[Michael]]
 [[Shane]]

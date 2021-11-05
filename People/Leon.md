@@ -1,5 +1,7 @@
 A ginger european (ew).
 
+Nicknames Include: Lennon, Leenon, John
+
 Linked to:
 [[Ian]]
 

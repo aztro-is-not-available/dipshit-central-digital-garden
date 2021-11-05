@@ -1,5 +1,7 @@
 Mr. Marconi is the world's most American man. One of the more common-sense-having folk.
 
+Nicknames include: Mr. Marconi Man, Any Word Starting With "M"
+
 Linked to:
 [[Shane]]
 [[Jake]]
